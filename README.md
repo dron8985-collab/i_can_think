@@ -1,3 +1,4 @@
 # i_can_think
 pflfxf yfgbcfnm ghbkj;tybt lkz ... супер не та раскладка
 кароче суть приложения сделать вам напоминания для того чтобы вы не забыли прочитать Гари Потера новым годом
+liytjkghkjughk.jhkjhkjhkjhkjhkm,ju
